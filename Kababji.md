@@ -1,2 +1,2 @@
 # testTrainingPublic test
-NO
+HI
