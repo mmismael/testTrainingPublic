@@ -1,2 +1,13 @@
 # testTrainingPublic test
-HI
+OH MY GOD IT DOSENT WORK!
+
+
+Hellllloooo
+
+hhhhhhhhh
+
+Nassaer
+
+Welcome to Aspire
+
+Smile to camera
