@@ -1,2 +1,2 @@
 # testTrainingPublic test
-POTATO!
+NO
